@@ -1,1 +1,1 @@
-this is an editied verion of ii's temp lol
+this is an edited verion of ii's temp lol
